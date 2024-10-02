@@ -1,0 +1,1 @@
+![screencapture-file-C-Users-gabri-Desktop-Programacao-sites-responsivos-lindos-eduweb-master-eduweb-master-index-html-2024-10-02-11_14_31](https://github.com/user-attachments/assets/91b210bb-f72e-439a-8bd6-f0f3c7fc405d)
